@@ -4,7 +4,8 @@
 ### Contact information:
 **Phone:** +375 (33) 301-01-32  
 **Email:** dimaluk49@gmail.com  
-**Telegram:** @lookindj
+**Telegram:** @lookindj  
+[Linkedin](https://www.linkedin.com/in/dima-lukin-12a851197)
 ***
 ### About me
 + **My goal** is to reach a high and stable income.  
