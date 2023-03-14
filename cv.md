@@ -1,4 +1,6 @@
 # Dzmitry Lukin
+<img src="https://user-images.githubusercontent.com/117684987/225057235-1e40c79b-0cc7-4dfd-b5ff-3ae4f44c67db.jpg" alt="Dzmitry Lukin" width="300">
+
 ### Junior Frontend Developer
 *********
 ### Contact information:
